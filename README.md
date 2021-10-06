@@ -1,2 +1,2 @@
 # hello-world
-Me in GITHUB 
+Looking for Trading View solutions 
